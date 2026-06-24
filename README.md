@@ -1,0 +1,1 @@
+# UAS-PROYEK-AKHIR-SISMIK-23552011464-Sandhy-Safarudin-Nurdiansyah
